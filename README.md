@@ -1,2 +1,0 @@
-# AR-electricals
-AR electricals
